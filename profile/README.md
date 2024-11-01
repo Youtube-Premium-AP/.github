@@ -1,8 +1,8 @@
 Get YouTube Premium APK MOD latest version, the ultimate video player & editor app for Android 2024. Enjoy enhanced features with no ads.
 
-👉 [DOWNLOAD YouTube Premium APK MOD](https://yt.spacetv.pro/)
+👉 [DOWNLOAD YouTube Premium APK MOD](https://123link.com.co/xtbhp)
 
-👉 [DOWNLOAD YouTube Premium APK MOD](https://yt.spacetv.pro/)
+👉 [DOWNLOAD YouTube Premium APK MOD](https://123link.com.co/xtbhp)
 
 YouTube Premium APK is an Mod application that provides a premium YouTube experience on your Android device.
 
